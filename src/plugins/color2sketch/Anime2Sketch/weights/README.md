@@ -1,0 +1,1 @@
+请下载预训练参数放在该文件夹内 链接：https://pan.baidu.com/s/1uPmmpFDXDWjbg5rDgzyXHQ 提取码：kljf

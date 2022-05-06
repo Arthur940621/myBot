@@ -1,0 +1,1 @@
+请下载预训练参数放在该文件夹内 链接：https://pan.baidu.com/s/17NLSmUJ_c-0o_6cVHUqyXA 提取码：3q9g
